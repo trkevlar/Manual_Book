@@ -2,6 +2,7 @@
 ## Panduan Pengguna
 
 Oleh: 
+![2309106072 jp](https://github.com/user-attachments/assets/b91fdf02-fc17-4cd6-b5ca-19d59d7b3c7b)
 
 ## Daftar Isi
 1. Pendahuluan
